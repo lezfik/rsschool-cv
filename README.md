@@ -1,1 +1,1 @@
-# rsschool-cv
+https://lezfik.github.io/rsschool-cv/cv
